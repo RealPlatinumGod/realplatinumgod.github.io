@@ -1,0 +1,2 @@
+# realplatinumgod.github.io
+test
